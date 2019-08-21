@@ -1,3 +1,5 @@
+![Gameplay screenshot](https://i.imgur.com/REuCGAC.png)
+
 ![Gameplay screenshot](https://i.imgur.com/WfpfyWO.png)
 
 # Sports Dog: World Pup 2!
